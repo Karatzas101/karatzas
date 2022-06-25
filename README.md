@@ -1,2 +1,0 @@
-# bootcamp
-Geia hara ntan
